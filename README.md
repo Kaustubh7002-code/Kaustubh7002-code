@@ -35,4 +35,4 @@ Amrita Vishwa Vidyapeetham · 2024–2028
 
 ## Contact
 
-[LinkedIn](www.linkedin.com/in/kaustubh-agnihotram-0a4530326) · [Email](mailto:kaustubhagnihotram4@gmail.com)
+[LinkedIn]([www.linkedin.com/in/kaustubh-agnihotram-0a4530326](https://www.linkedin.com/in/kaustubh-agnihotram-0a4530326/)) · [Email](mailto:kaustubhagnihotram4@gmail.com)
